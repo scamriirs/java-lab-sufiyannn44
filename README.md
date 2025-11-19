@@ -1,1 +1,1 @@
-Sufiyan Ali MCA 1B rollno - 083
+Sufiyan Sec-1B (25/SCA/MCAN/083)
